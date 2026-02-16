@@ -19,5 +19,6 @@ If that sounds interesting, check out what we're up to at [jadaru.co](https://ja
 ## Connect
 
 - 🌐 [jadaru.co](https://jadaru.co)
+- 💼 [LinkedIn](https://www.linkedin.com/in/jamesrutter)
 - 🐦 [@1Jadaru](https://x.com/1Jadaru)
 
